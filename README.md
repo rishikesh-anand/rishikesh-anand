@@ -1,6 +1,5 @@
 Hello I am rishikesh anand.
 I am a Cyber security student.
-I am looking to collab upon api hacking.
 my socials 
 instagram - https://www.instagram.com/hey_anandrishikesh/
 
