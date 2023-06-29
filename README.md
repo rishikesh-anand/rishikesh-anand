@@ -2,7 +2,7 @@ Hello I am rishikesh anand.
 I am a CyberSecurity Student.
 my socials, 
 instagram - https://www.instagram.com/hey_anandrishikesh/
-linkdin - https://www.linkedin.com/in/rishikesh-anand-336826261/
+linkedin - https://www.linkedin.com/in/rishikesh-anand-336826261/
 peerlist - https://peerlist.io/heyrishikesh
 
 
